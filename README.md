@@ -6,7 +6,7 @@ that prioritizes innovation and performance :computer:
 
 Hobbies:
 
-Hiking	:hibiscus:
+Hiking :hibiscus:
 
 Exploring cafes :teapot:
 
